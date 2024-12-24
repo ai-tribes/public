@@ -28,5 +28,5 @@ Connect Everything: Link your tribe to social media, wallets, and more.
 
 Our Vision
 
-AI Tribes is designed to enable the process of creating intentional online commnunities with a specific purpose or vision. 
+Our vision is to create a better, more harmonious world by helping people to create intentional, functional communities that serve the greater whole. We believe AI should help us handle the boring, difficult and annoying parts of life and free us up to live, love, laugh and celebrate together. 
 
